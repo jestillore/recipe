@@ -1,12 +1,12 @@
-INGREDIENTS
-1.78 lb. chicken thighs 
-1 Tbsp. garlic powder
-1 Tbsp. onion powder
-1/2 Tbsp. dry thyme 
-1 tsp ground black pepper
-1/2 tbsp. paprika 
-1/2 tbsp. dry parsley
-1 tbsp. creole seasoning
-1/2 tsp salt
-1/2 tbsp. adobo seasoning  
-tbsp. oil
+### INGREDIENTS
+- 1.78 lb. chicken thighs 
+- 1 Tbsp. garlic powder
+- 1 Tbsp. onion powder
+- 1/2 Tbsp. dry thyme 
+- 1 tsp ground black pepper
+- 1/2 tbsp. paprika 
+- 1/2 tbsp. dry parsley
+- 1 tbsp. creole seasoning
+- 1/2 tsp salt
+- 1/2 tbsp. adobo seasoning  
+- tbsp. oil
