@@ -1,0 +1,6 @@
+- 2 tablespoons unsalted butter
+- 2 tablespoons all-purpose flour
+- 1 and ¾ cups beef broth
+- 2 teaspoons light brown sugar
+- ½ cup heavy cream
+- ½ teaspoon black pepper
