@@ -1,0 +1,5 @@
+- 1 tsp chicken powder
+- 3 tsp grill krydda
+- 1 tsp garlic powder
+- 1 tsp onion powder (optional)
+- freshly ground black pepper
